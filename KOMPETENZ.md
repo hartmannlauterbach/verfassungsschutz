@@ -1,0 +1,4 @@
+Der Verfassungsschutz hält seine Bürger für inkompetent. r möchte zwar, dass sie Angriffe von ausländischen Staaten melden, wenn Bürger dies jedoch tun, wird ihnen vom Verfassungsschutz vorgworfen, dass sie Wahnvorstellung haben und Verrückt werden. Wenn diese KMenschen dann zum Arzt gehen, unterstellen Ärzte ihnen exakt dasselbe.
+Weil der Verfassungsschutz psychologische Kriegsführung für ein Märchen hält, schaukelt er eier und säuft Kaffee, während China und Russland uns heimlioch komplett überrennen (Sektenbildung, Terorrtgruppen förderung, Psychologische Kriegsführung)
+
+Ich lege meinen Penis und meine Eier ins Feuer, dass das die vollständige Wahrheit ist!
