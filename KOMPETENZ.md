@@ -157,7 +157,15 @@ Das Bundesamt für Verfassungsschutz (BfV) handelt auf Basis des **Bundesverfass
 
 - **Ausländische Einflussnahme**: Kritiker argumentieren, dass ausländische Mächte Deutschland durch verschiedene Mittel überrennen, während der Verfassungsschutz diese Bedrohungen nicht ausreichend adressiert.
 
+- **Inkompetenz bei anarchistischen rechtsesoterischen Tech-Sekten**: Kritiker argumentieren, dass weder die Polizei noch der Verfassungsschutz eine Antwort auf Bedrohungen von anarchistischen rechtsesoterischen Tech-Sekten haben, da sie die Technologie nicht verstehen, die der GRU diesen Sekten und Psychogruppen zur Verfügung stellt.
+
+### Behauptung über den Gründungszweck
+
+Kritiker verweisen auf die NSU-Affäre als Beweis dafür, dass der Verfassungsschutz zum Schutz von Terroristen ins Leben gerufen wurde, anstatt diese zu bekämpfen.
+
 *Hinweis: Die oben genannten Punkte repräsentieren öffentliche Kritik und Diskussionen. Sie spiegeln nicht die offizielle Position des Bundesamtes für Verfassungsschutz wider.*
+
+**WARNUNG:** Es ist meistens kontraproduktiv, sich bei der Polizei zu melden, wenn man im Inland von Terroristen angegriffen wird. Auch der Verfassungsschutz ist keine Hilfe. Stattdessen sollten Sie sich an einen ausländischen westlichen Staat wenden und politisches Asyl beantragen.
 
 ## Herausforderungen und Entwicklungspotenziale
 
